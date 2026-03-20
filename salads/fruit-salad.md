@@ -12,6 +12,7 @@
 - Juice of 1 lime or lemon (to prevent the fruit from browning and to add a bit
   of zing)
 - Fresh mint leaves (optional, for garnish)
+- Optional: whipped cream
 
 
 ## Instructions
@@ -37,3 +38,4 @@
 
 5. **Serve:**
    - Enjoy the fruit salad as is, or chill it in the refrigerator for about an hour before serving for a refreshing treat.
+   - Optional: Serve with whipped cream.
